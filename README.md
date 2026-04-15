@@ -1,1 +1,1 @@
-# for-projects
+# ONLY FOR MY PROJECTS
